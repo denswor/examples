@@ -11,7 +11,7 @@
 - Mike Locke https://www.youtube.com/channel/UC0f9NbKjUUbnL2cOa12ENIQ
 
 ## Self presentations
-- Awwwards https://www.youtube.com/watch?v=42AGGRGB_Ew
+- Interface Lovers https://interfacelovers.com/
 
 ## Project Management
 - Holacracy https://www.youtube.com/user/HolacracyOne
