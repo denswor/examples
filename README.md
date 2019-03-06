@@ -5,17 +5,12 @@
 - Is it going to the center? (Вы едите [автобус] до центра?)
 - That will be never ending process
 - Reactivation compaign
-- Retention
-- No longer
 - Daily Active Users
 - Monthly Active Users
 - You just need to talk with users
 - Humans need to simplify things
 - Changing the customer or changing the problem
-- Revenge
 - It seems like
-- Noughty
-- Straight
 - How are you planing to make a living — как ты планируешь зарабатывать на жизнь
 - I am I a hurry — я спешу
 - No longer the mess
@@ -32,3 +27,5 @@
 - Novelty is the opposite functionality
 - Very simple and incredibly beautiful and usable product
 - It is the most convenient for me
+- Even if you indeed
+- What tips you give about it
