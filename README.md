@@ -31,3 +31,4 @@
 - Form should follow function
 - Novelty is the opposite functionality
 - Very simple and incredibly beautiful and usable product
+- It is the most convenient for me
