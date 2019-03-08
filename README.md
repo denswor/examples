@@ -16,7 +16,7 @@
 - No longer the mess
 - When should I start
 - Full time contributors
-- Ember probably has no future”
+- This technology probably has no future
 - People love contributing to opensource project
 - This is the future. We wanna be a part of it
 - Panicle career success
