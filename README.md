@@ -31,3 +31,7 @@
 - What tips you give about it
 - Who cares about ...
 - It looks incredibly appealing to use
+- You will be surprise how many people think don’t trough logical steps
+- Make sure that you understand what you do
+- The first point / the second point
+- The next thing that we what do ...
