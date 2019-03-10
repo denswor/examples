@@ -38,3 +38,8 @@
 - It\'s amazing. You got to do it
 - How I would handle feedback
 - Which is amazing
+- Keep routine small
+- Pushing your customers towards the solution
+- Startup journey from idea to growth stage
+- Listen the problem, not solution
+- Сannibalized phone market
