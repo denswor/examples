@@ -54,3 +54,4 @@
 - I am filming Doctor ALex (Я снимаю интервью с Доктором Алексом)
 - Take your ass back to your work
 - Please don\`t waste my time
+- What am I suppose to do now?
