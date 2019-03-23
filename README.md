@@ -53,3 +53,4 @@
 - This metrics guide the team
 - I am filming Doctor ALex (Я снимаю интервью с Доктором Алексом)
 - Take your ass back to your work
+- Please don\`t waste my time
