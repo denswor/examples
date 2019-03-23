@@ -55,3 +55,7 @@
 - Take your ass back to your work
 - Please don\`t waste my time
 - What am I suppose to do now?
+- I am gotta go
+- And who we do have here
+- Why don\`t you brind Andy by the house for dinner this week
+- Have a seat
