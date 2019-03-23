@@ -45,3 +45,9 @@
 - Сannibalized phone market (Канибализировали рынок телефонов)
 - Has anybody call you about whitepaper before?
 - Hi John! First of all thanks for this useful article (Привет джон! Во-первых спасибо за это полежное видео)
+- I am cheers fo design in our company
+- You got to be careful with that
+- Make functional prototype ass quick as possible. Make the clickable
+- When should we lunch our product?
+- I try to keep my hand on the pulse of what is going on in the animation industry and new talent that emerges from it
+- This metrics guide the team
