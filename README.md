@@ -52,3 +52,4 @@
 - I try to keep my hand on the pulse of what is going on in the animation industry and new talent that emerges from it
 - This metrics guide the team
 - I am filming Doctor ALex (Я снимаю интервью с Доктором Алексом)
+- Take your ass back to your work
