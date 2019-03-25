@@ -59,4 +59,4 @@
 - And who we do have here
 - Why don\`t you brind Andy by the house for dinner this week
 - Have a seat
-- I think it is
+- When should I start thinking about press
