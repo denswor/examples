@@ -60,3 +60,18 @@
 - Why don\`t you brind Andy by the house for dinner this week
 - Have a seat
 - When should I start thinking about press
+- You are trying to convince someone to trying your product
+- I want to rise money. An I know how to achieve that goal
+- It might be not good for you
+- I probably gonna lose every single dollar
+- It doesn’t make any sense
+- Angels are basically a rich people
+- You should be careful of managers groups
+- We are like to get together for meals
+- Sead founds are kind of super professional angels
+- Do research on them
+- I am looking for alternative assets to present my product
+- I got to do something big
+- VC is very specific structure
+- The one on restores are crowd founding websites
+- Investors write tweets about the companies that they wanna see exist
