@@ -12,7 +12,7 @@
 - Changing the customer or changing the problem
 - It seems like (Это кажется/выглядит как)
 - How are you planing to make a living — как ты планируешь зарабатывать на жизнь
-- I am I a hurry (Я спешу)
+- I am in a hurry (Я спешу)
 - No longer the mess
 - When should I start (Когда я могу приступить)
 - Full time contributors (Постоянные учатники)
